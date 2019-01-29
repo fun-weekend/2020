@@ -27,18 +27,18 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 
 ## Accommodation:
 
-* Hilton Doubletree
-* Novotel
-* Premier Inn next to Novotel (recently opened)
-* The Met
+* [Hilton Doubletree](https://doubletree3.hilton.com/en/hotels/united-kingdom/doubletree-by-hilton-hotel-leeds-city-centre-LBACCDI/index.html)
+* [Novotel](https://www.accorhotels.com/gb/hotel-3270-novotel-leeds-centre/index.shtml)
+* [Premier Inn](https://www.premierinn.com/gb/en/hotels/england/west-yorkshire/leeds/leeds-city-centre-whitehall-road.html) next to Novotel (recently opened)
+* [The Met](https://www.ihg.com/spnd/hotels/gb/en/leeds/leeks/hoteldetail)
 * AirBnB (get in touch for recommendations)
-* Discovery Inn (incredibly cheap, borderline tolerable)
+* [Discovery Inn](https://discovery-inn-leeds.co.uk/) (incredibly cheap, borderline tolerable)
 
 ## Food:
 
-* Iberica
-* Zaap
-* Fuji Hiro
-* Meat Liquor (not vegie-friendly)
-* Almost Famous (not vegie-friendly)
-* Reds (not vegie-friendly)
+* [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/)
+* [Zaap](https://zaapthai.co.uk/locations/leeds/)
+* [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro)
+* [MEATliquor](https://meatliquor.com/restaurant/meatliquor-leeds/) (not vegie-friendly)
+* [Almost Famous](http://www.almostfamousburgers.com/leeds.html) (not vegie-friendly)
+* [Red’s](https://truebarbecue.com/leeds/) (not vegie-friendly)
