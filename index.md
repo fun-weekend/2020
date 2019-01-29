@@ -25,6 +25,13 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 * [Cow and Calf Rocks (Ilkley)](https://www.visitbradford.com/thedms.aspx?dms=3&venue=2182686)
 * [National Coal Mining Museum](https://www.ncm.org.uk/)
 
+## Possibilities for craft sessions
+
+* [Leeds Inspired list of creative workshops](https://www.leedsinspired.co.uk/creative-workshops-Leeds)
+* [Leeds Inspired “crafts” tag](https://www.leedsinspired.co.uk/search?p=&wn=0&wt=3&ac=&df=&dt=&pg=&pp=2)
+* [The Drawing Room at Leeds Central Library](https://www.leeds.gov.uk/leisure/libraries/music-and-art) (though events seem to be mostly on weekdays)
+* [Open Source Arts](http://opensourcearts.co.uk/)
+
 ## Accommodation:
 
 * [Hilton Doubletree](https://doubletree3.hilton.com/en/hotels/united-kingdom/doubletree-by-hilton-hotel-leeds-city-centre-LBACCDI/index.html)
