@@ -31,6 +31,7 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 * [Leeds Inspired “crafts” tag](https://www.leedsinspired.co.uk/search?p=&wn=0&wt=3&ac=&df=&dt=&pg=&pp=2)
 * [The Drawing Room at Leeds Central Library](https://www.leeds.gov.uk/leisure/libraries/music-and-art) (though events seem to be mostly on weekdays)
 * [Open Source Arts](http://opensourcearts.co.uk/)
+* We could host one of our own at a cafe or at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/).  Kake would be able to provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’d buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards) but someone else would have to provide paper/pencils/felt-tips/stickers/etc.  A cafe would probably be more Fun but the Community Hub is a good Plan B.
 
 ## Accommodation:
 
