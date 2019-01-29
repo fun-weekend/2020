@@ -54,3 +54,7 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 * See also:
 * * [TripAdvisor list of Leeds restaurants](https://www.tripadvisor.co.uk/Restaurants-g186411-Leeds_West_Yorkshire_England.html])
 * * [Leeds List on Indian restaurants](https://leeds-list.com/food-and-drink/feast-on-curries-pakoras-and-bhajis-at-the-finest-indian-restaurants-in-leeds/)
+
+## Pubs:
+
+* [Whitelock’s Ale House](http://www.whitelocksleeds.com/)
