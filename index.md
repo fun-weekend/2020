@@ -52,6 +52,8 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 * [Red’s](https://truebarbecue.com/leeds/) (not vegie-friendly)
 * [Bundobust](http://bundobust.com/leeds/)
 * [Hansas](http://hansasrestaurant.com/)
+* [Fisherman's Wife](https://thefishermanswife.co.uk/our-takeaways/)
+* [Kirkgate Market](https://www.leeds.gov.uk/leedsmarkets/street-food-at-kirkgate)
 * See also:
 * * [TripAdvisor list of Leeds restaurants](https://www.tripadvisor.co.uk/Restaurants-g186411-Leeds_West_Yorkshire_England.html])
 * * [Leeds List on Indian restaurants](https://leeds-list.com/food-and-drink/feast-on-curries-pakoras-and-bhajis-at-the-finest-indian-restaurants-in-leeds/)
