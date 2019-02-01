@@ -23,7 +23,8 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 * [Bradford Industrial Museum (Bradford)](http://www.bradfordmuseums.org/venues/bradford-industrial-museum)
 * [Digger Land (Castleford)](https://www.diggerland.com/)
 * [Cow and Calf Rocks (Ilkley)](https://www.visitbradford.com/thedms.aspx?dms=3&venue=2182686)
-* [National Coal Mining Museum](https://www.ncm.org.uk/)
+* [National Coal Mining Museum (Wakefield)](https://www.ncm.org.uk/)
+* [Eureka! The National Children's Museum (Halifax)](https://www.eureka.org.uk/)
 
 ## Possibilities for craft sessions
 
