@@ -1,5 +1,27 @@
 This page is under development, with Leeds Fun Weekend still very much in the planning stage.  Pull Requests or Issues with suggestions are very much recommended
 
+## Friday
+
+* *Afternoon* Museum crawl - Henry Moore Institute, Leeds City Museum, Leeds Art Gallery, Leeds Library
+* *Evening* Dinner TBC
+
+## Saturday
+
+* *Morning* Leeds Owl Trail
+* *Lunch* Bundobust
+* *Afternoon* Queer Code Crafts at John Lewis Community Hub
+* *Evening* Dinner at Ibérica
+
+## Sunday
+
+* *Morning* Brunch at [Meanwood Valley Urban Farm](http://www.mvuf.org.uk/)
+* *Afternoon* ???
+* *Evening* Dinner at Fuji Hiro
+
+---
+
+If you have more time in the area, here are some more suggestions:
+
 ## Possible places to visit
 
 * [Leeds Art Gallery](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-Art-Gallery.aspx)
