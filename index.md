@@ -67,6 +67,11 @@ If you have more time in the area, here are some more suggestions:
 
 ## Food:
 
+* [Akbars](https://www.akbars.co.uk/)
+* [The Man Behind The Curtain](https://themanbehindthecurtain.co.uk/)
+* [Miller and Carter](https://www.millerandcarter.co.uk/restaurants/yorkshire-and-the-humber/millerandcarterleedslight)
+* [Town Hall Tavern](http://townhalltavernleeds.com/)
+* [Issho](https://www.issho-restaurant.com/)
 * [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/)
 * [Zaap](https://zaapthai.co.uk/locations/leeds/)
 * [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro)
