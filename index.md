@@ -73,6 +73,7 @@ If you have more time in the area, here are some more suggestions:
 * [Fisherman's Wife](https://thefishermanswife.co.uk/our-takeaways/) - £ - Fish & Chips
 * [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro) - ££ - Japanese
 * [Hansas](http://hansasrestaurant.com/) - ££ - Vegetarian
+* [Home](https://www.homeleeds.co.uk/) - ££££ - British restaurant
 * [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/) - £££ - Spanish
 * [Issho](https://www.issho-restaurant.com/) - £££ - Japaese
 * [Kirkgate Market](https://www.leeds.gov.uk/leedsmarkets/street-food-at-kirkgate) - £ - Street food
