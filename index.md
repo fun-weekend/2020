@@ -67,21 +67,21 @@ If you have more time in the area, here are some more suggestions:
 
 ## Food:
 
-* [Akbars](https://www.akbars.co.uk/)
-* [The Man Behind The Curtain](https://themanbehindthecurtain.co.uk/)
-* [Miller and Carter](https://www.millerandcarter.co.uk/restaurants/yorkshire-and-the-humber/millerandcarterleedslight)
-* [Town Hall Tavern](http://townhalltavernleeds.com/)
-* [Issho](https://www.issho-restaurant.com/)
-* [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/)
-* [Zaap](https://zaapthai.co.uk/locations/leeds/)
-* [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro)
-* [MEATliquor](https://meatliquor.com/restaurant/meatliquor-leeds/) (not vegie-friendly)
-* [Almost Famous](http://www.almostfamousburgers.com/leeds.html) (not vegie-friendly)
-* [Red’s](https://truebarbecue.com/leeds/) (not vegie-friendly)
-* [Bundobust](http://bundobust.com/leeds/)
-* [Hansas](http://hansasrestaurant.com/)
-* [Fisherman's Wife](https://thefishermanswife.co.uk/our-takeaways/)
-* [Kirkgate Market](https://www.leeds.gov.uk/leedsmarkets/street-food-at-kirkgate)
+* [Akbars](https://www.akbars.co.uk/) - ££ - Indian
+* [Almost Famous](http://www.almostfamousburgers.com/leeds.html) (not vegie-friendly) - ££ - Hamburger restaurant
+* [Bundobust](http://bundobust.com/leeds/) - ££ - Indian
+* [Fisherman's Wife](https://thefishermanswife.co.uk/our-takeaways/) - £ - Fish & Chips
+* [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro) - ££ - Japanese
+* [Hansas](http://hansasrestaurant.com/) - ££ - Vegetarian
+* [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/) - £££ - Spanish
+* [Issho](https://www.issho-restaurant.com/) - £££ - Japaese
+* [Kirkgate Market](https://www.leeds.gov.uk/leedsmarkets/street-food-at-kirkgate) - £ - Street food
+* [MEATliquor](https://meatliquor.com/restaurant/meatliquor-leeds/) (not vegie-friendly) - ££ - Hamburger restaurant
+* [Miller and Carter](https://www.millerandcarter.co.uk/restaurants/yorkshire-and-the-humber/millerandcarterleedslight) - ££ - Steak house
+* [Red’s True Barbecue](https://truebarbecue.com/leeds/) (not vegie-friendly) - ££ - Barbecue
+* [The Man Behind The Curtain](https://themanbehindthecurtain.co.uk/) - ££££ - Fine dining
+* [Town Hall Tavern](http://townhalltavernleeds.com/) - ££ - Gastropub
+* [Zaap](https://zaapthai.co.uk/locations/leeds/) - ££ - Thai streetfood
 * See also:
 * * [TripAdvisor list of Leeds restaurants](https://www.tripadvisor.co.uk/Restaurants-g186411-Leeds_West_Yorkshire_England.html])
 * * [Leeds List on Indian restaurants](https://leeds-list.com/food-and-drink/feast-on-curries-pakoras-and-bhajis-at-the-finest-indian-restaurants-in-leeds/)
