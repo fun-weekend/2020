@@ -75,11 +75,14 @@ If you have more time in the area, here are some more suggestions:
 * [Hansas](http://hansasrestaurant.com/) - ££ - Vegetarian
 * [Home](https://www.homeleeds.co.uk/) - ££££ - British restaurant
 * [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/) - £££ - Spanish
+* [Ira B's](http://www.ira-bs.co.uk/) (Moor Allerton) - ££ - Deli Snack Bar
 * [Issho](https://www.issho-restaurant.com/) - £££ - Japaese
 * [Kirkgate Market](https://www.leeds.gov.uk/leedsmarkets/street-food-at-kirkgate) - £ - Street food
 * [MEATliquor](https://meatliquor.com/restaurant/meatliquor-leeds/) (not vegie-friendly) - ££ - Hamburger restaurant
 * [Miller and Carter](https://www.millerandcarter.co.uk/restaurants/yorkshire-and-the-humber/millerandcarterleedslight) - ££ - Steak house
 * [Red’s True Barbecue](https://truebarbecue.com/leeds/) (not vegie-friendly) - ££ - Barbecue
+* [Salvo's Deli](https://salvos.co.uk/) (Headingley) - ££ - Italian
+* [Tharavadu](http://www.tharavadurestaurants.com/) - ££ - Kerala Indian
 * [The Man Behind The Curtain](https://themanbehindthecurtain.co.uk/) - ££££ - Fine dining
 * [Town Hall Tavern](http://townhalltavernleeds.com/) - ££ - Gastropub
 * [Zaap](https://zaapthai.co.uk/locations/leeds/) - ££ - Thai streetfood
