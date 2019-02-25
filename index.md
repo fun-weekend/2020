@@ -36,6 +36,8 @@ If you have more time in the area, here are some more suggestions:
 * [Temple Newsham](http://www.leeds.gov.uk/museumsandgalleries/Pages/Temple-Newsam.aspx)
 * [Leeds Owl Trail](http://www.leedsowltrail.com/)
 
+See also the various [heritage trails and maps](https://www.visitleeds.co.uk/maps-and-more/) from Visit Leeds.
+
 ## Further afield:
 
 * [Yorkshire Sculpture Park (Wakefield)](https://ysp.org.uk/)
