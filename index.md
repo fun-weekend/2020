@@ -21,7 +21,7 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 
 ---
 
-If you have more time in the area, here are some more suggestions:
+If you have more time in the area, here are some more suggestions.  Please note that (unlike the core Leeds Fun Weekend activities above) some of these might cost money.
 
 ## Possible places to visit
 
