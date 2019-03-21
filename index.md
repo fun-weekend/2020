@@ -1,18 +1,18 @@
-This page is under development, with Leeds Fun Weekend still very much in the planning stage.  Pull Requests or Issues with suggestions are very much recommended
+This page is under development, with Leeds Fun Weekend still very much in the planning stage.  Pull Requests or Issues with suggestions are very much recommended.  The Fun Weekend will run from Friday 17 January to Sunday 19 January 2020.
 
-## Friday
+## Friday 17 January
 
 * *Afternoon* Museum crawl - Henry Moore Institute, Leeds City Museum, Leeds Art Gallery, Leeds Library
 * *Evening* Dinner TBC
 
-## Saturday
+## Saturday 18 January
 
 * *Morning* Leeds Owl Trail
 * *Lunch* Bundobust
 * *Afternoon* Queer Code Crafts at John Lewis Community Hub
 * *Evening* Dinner at Ibérica
 
-## Sunday
+## Sunday 19 January
 
 * *Morning* Brunch at [Meanwood Valley Urban Farm](http://www.mvuf.org.uk/)
 * *Afternoon* ???
