@@ -9,7 +9,7 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 
 * *Morning* Leeds Owl Trail
 * *Lunch* Bundobust
-* *Afternoon* Queer Code Crafts at John Lewis Community Hub
+* *Afternoon* Crafts at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/) (a joint event with [Queer Code Yorkshire](https://twitter.com/QueerCodeYorks)).  Kake will provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’ll buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards).  Preferably someone else will provide paper/pencils/felt-tips/stickers/scissors/glue/etc (but Kake will do this too if necessary).
 * *Evening* Dinner at Ibérica
 
 ## Sunday 19 January
@@ -50,13 +50,12 @@ See also the various [heritage trails and maps](https://www.visitleeds.co.uk/map
 * [National Coal Mining Museum (Wakefield)](https://www.ncm.org.uk/)
 * [Eureka! The National Children's Museum (Halifax)](https://www.eureka.org.uk/)
 
-## Possibilities for craft sessions
+## Craft-related activities:
 
 * [Leeds Inspired list of creative workshops](https://www.leedsinspired.co.uk/creative-workshops-Leeds)
 * [Leeds Inspired “crafts” tag](https://www.leedsinspired.co.uk/search?p=&wn=0&wt=3&ac=&df=&dt=&pg=&pp=2)
 * [The Drawing Room at Leeds Central Library](https://www.leeds.gov.uk/leisure/libraries/music-and-art) (though events seem to be mostly on weekdays)
 * [Open Source Arts](http://opensourcearts.co.uk/)
-* We could host one of our own at a cafe or at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/).  Kake would be able to provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’d buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards) but someone else would have to provide paper/pencils/felt-tips/stickers/etc.  A cafe would probably be more Fun but the Community Hub is a good Plan B.
 
 ## Accommodation:
 
