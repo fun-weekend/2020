@@ -2,21 +2,22 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 
 ## Friday 17 January
 
-* *Afternoon* Museum crawl - Henry Moore Institute, Leeds City Museum, Leeds Art Gallery, Leeds Library
+* *Afternoon* Museum crawl - [Henry Moore Institute](https://www.henry-moore.org/visit/henry-moore-institute), [Leeds City Museum](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-City-Museum.aspx), [Leeds Art Gallery](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-Art-Gallery.aspx), [Leeds Central Library Tiled Hall](https://secretlibraryleeds.net/2014/04/11/leeds-central-library-tiled-hall/)
 * *Evening* Dinner TBC
 
 ## Saturday 18 January
 
-* *Morning* Leeds Owl Trail
-* *Lunch* Bundobust
-* *Afternoon* Crafts at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/) (a joint event with [Queer Code Yorkshire](https://twitter.com/QueerCodeYorks)).  Kake will provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’ll buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards).  Preferably someone else will provide paper/pencils/felt-tips/stickers/scissors/glue/etc (but Kake will do this too if necessary).
-* *Evening* Dinner at Ibérica
+* *Morning* [Leeds Owl Trail](http://www.leedsowltrail.com/)
+* *Lunch* [Bundobust](http://bundobust.com/leeds/)
+* *Afternoon: Team Crafts* Crafts at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/) (a joint event with [Queer Code Yorkshire](https://twitter.com/QueerCodeYorks)).  Kake will provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’ll buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards).  Preferably someone else will provide paper/pencils/felt-tips/stickers/scissors/glue/etc (but Kake will do this too if necessary).
+* *Afternoon: Team Pub* Hopefully a pub crawl led by [bob walker](https://randomness.org.uk/)
+* *Evening* Dinner at [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/)
 
 ## Sunday 19 January
 
 * *Morning* Brunch at [Meanwood Valley Urban Farm](http://www.mvuf.org.uk/)
 * *Afternoon* ???
-* *Evening* Dinner at Fuji Hiro
+* *Evening* Dinner at [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro)
 
 ---
 
@@ -24,17 +25,17 @@ If you have more time in the area, here are some more suggestions:
 
 ## Possible places to visit
 
-* [Leeds Art Gallery](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-Art-Gallery.aspx)
-* [Henry Moore Institute](https://www.henry-moore.org/visit/henry-moore-institute)
+* [Leeds Art Gallery](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-Art-Gallery.aspx) (part of our Friday museum crawl)
+* [Henry Moore Institute](https://www.henry-moore.org/visit/henry-moore-institute) (part of our Friday museum crawl)
 * [Thackray Medical Museum](http://www.thackraymedicalmuseum.co.uk/)
-* [Leeds City Museum](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-City-Museum.aspx)
+* [Leeds City Museum](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-City-Museum.aspx) (part of our Friday museum crawl)
 * [Roundhay Park - Tropical World](http://www.roundhaypark.org.uk/tropical-world-leeds/)
 * [Royal Armouries Museum](https://royalarmouries.org/visit-us/leeds)
 * [Kirkstall Abbey](http://www.leeds.gov.uk/museumsandgalleries/Pages/Kirkstall-Abbey.aspx)
 * [Leeds Industrial Museum](http://www.leeds.gov.uk/museumsandgalleries/Pages/armleymills.aspx)
 * [Harewood House](http://harewood.org/)
 * [Temple Newsham](http://www.leeds.gov.uk/museumsandgalleries/Pages/Temple-Newsam.aspx)
-* [Leeds Owl Trail](http://www.leedsowltrail.com/)
+* [Leeds Owl Trail](http://www.leedsowltrail.com/) (our Saturday morning activity)
 
 See also the various [heritage trails and maps](https://www.visitleeds.co.uk/maps-and-more/) from Visit Leeds.
 
@@ -69,12 +70,12 @@ See also the various [heritage trails and maps](https://www.visitleeds.co.uk/map
 
 * [Akbars](https://www.akbars.co.uk/) - ££ - Indian
 * [Almost Famous](http://www.almostfamousburgers.com/leeds.html) (not vegie-friendly) - ££ - Hamburger restaurant
-* [Bundobust](http://bundobust.com/leeds/) - ££ - Indian
+* [Bundobust](http://bundobust.com/leeds/) - ££ - Indian (our Saturday lunch venue)
 * [Fisherman's Wife](https://thefishermanswife.co.uk/our-takeaways/) - £ - Fish & Chips
-* [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro) - ££ - Japanese
+* [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro) - ££ - Japanese (our Sunday evening venue)
 * [Hansas](http://hansasrestaurant.com/) - ££ - Vegetarian
 * [Home](https://www.homeleeds.co.uk/) - ££££ - British restaurant
-* [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/) - £££ - Spanish
+* [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/) - £££ - Spanish (our Saturday evening venue)
 * [Ira B's](http://www.ira-bs.co.uk/) (Moor Allerton) - ££ - Deli Snack Bar
 * [Issho](https://www.issho-restaurant.com/) - £££ - Japaese
 * [Kirkgate Market](https://www.leeds.gov.uk/leedsmarkets/street-food-at-kirkgate) - £ - Street food
