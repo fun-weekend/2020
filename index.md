@@ -81,7 +81,7 @@ See also the various [heritage trails and maps](https://www.visitleeds.co.uk/map
 * [Kirkgate Market](https://www.leeds.gov.uk/leedsmarkets/street-food-at-kirkgate) - £ - Street food
 * [MEATliquor](https://meatliquor.com/restaurant/meatliquor-leeds/) (not vegie-friendly) - ££ - Hamburger restaurant
 * [Miller and Carter](https://www.millerandcarter.co.uk/restaurants/yorkshire-and-the-humber/millerandcarterleedslight) - ££ - Steak house
-* [Red’s True Barbecue](https://truebarbecue.com/leeds/) (not vegie-friendly) - ££ - Barbecue
+* [Red’s True Barbecue](https://truebarbecue.com/leeds/) (limited vegetarian options, but improving) - ££ - Barbecue
 * [Salvo's Deli](https://salvos.co.uk/) (Headingley) - ££ - Italian
 * [Tharavadu](http://www.tharavadurestaurants.com/) - ££ - Kerala Indian
 * [The Man Behind The Curtain](https://themanbehindthecurtain.co.uk/) - ££££ - Fine dining
