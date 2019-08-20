@@ -2,16 +2,17 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 
 ## Friday 17 January
 
-* *Afternoon* Museum crawl - [Henry Moore Institute](https://www.henry-moore.org/visit/henry-moore-institute), [Leeds City Museum](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-City-Museum.aspx), [Leeds Art Gallery](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-Art-Gallery.aspx), [Leeds Central Library Tiled Hall](https://secretlibraryleeds.net/2014/04/11/leeds-central-library-tiled-hall/)
-* *Evening* Dinner TBC
+* *Afternoon* 14:00 - 17:00 Museum crawl - [Henry Moore Institute](https://www.henry-moore.org/visit/henry-moore-institute), [Leeds City Museum](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-City-Museum.aspx), [Leeds Art Gallery](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-Art-Gallery.aspx), [Leeds Central Library Tiled Hall](https://secretlibraryleeds.net/2014/04/11/leeds-central-library-tiled-hall/)
+* *Evening* 17:00 - 18:30 Foleys Tap House
+* *Dinner* 19:00 [Bundobust](http://bundobust.com/leeds/)
 
 ## Saturday 18 January
 
-* *Morning* [Leeds Owl Trail](http://www.leedsowltrail.com/)
-* *Lunch* [Bundobust](http://bundobust.com/leeds/)
-* *Afternoon: Team Crafts* Crafts at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/) (a joint event with [Queer Code Yorkshire](https://twitter.com/QueerCodeYorks)).  Kake will provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’ll buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards).  Preferably someone else will provide paper/pencils/felt-tips/stickers/scissors/glue/etc (but Kake will do this too if necessary).
+* *Morning* 10:30 [Leeds Owl Trail](http://www.leedsowltrail.com/)
+* *Lunch* 12:00 - 13:00 Kirkgate Market
+* *Afternoon: Team Crafts* 13:00 - 18:00 Crafts at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/) (a joint event with [Queer Code Yorkshire](https://twitter.com/QueerCodeYorks)).  Kake will provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’ll buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards).  Alice will provide paper/pencils/felt-tips/stickers/scissors/glue/etc.
 * *Afternoon: Team Pub* Hopefully a pub crawl led by [bob walker](https://randomness.org.uk/)
-* *Evening* Dinner at [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/)
+* *Evening* 18:00 Dinner at [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/)
 
 ## Sunday 19 January
 
