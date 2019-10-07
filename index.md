@@ -26,6 +26,10 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 
 If you have more time in the area, here are some more suggestions.  Please note that (unlike the core Leeds Fun Weekend activities above) some of these might cost money.
 
+## Travel
+
+The majority of the weekend events are walking distance, but there are a number of bus/train passes which might be suitable if you are planning on traveling more.  See the list on the [WY Metro website](https://ticketsandpasses.wymetro.com/day-weekend-family-or-group-tickets/day-weekend-family-or-group-ticket-prices/).
+
 ## Possible places to visit
 
 * [Leeds Art Gallery](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-Art-Gallery.aspx) (part of our Friday museum crawl)
