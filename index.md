@@ -4,7 +4,7 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 
 * *Afternoon* 14:00 - 17:00 Museum crawl - [Henry Moore Institute](https://www.henry-moore.org/visit/henry-moore-institute), [Leeds City Museum](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-City-Museum.aspx), [Leeds Art Gallery](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-Art-Gallery.aspx), [Leeds Central Library Tiled Hall](https://secretlibraryleeds.net/2014/04/11/leeds-central-library-tiled-hall/)
 * *Evening* 17:00 - 18:30 Foleys Tap House
-* *Dinner* 19:00 [Bundobust](http://bundobust.com/leeds/)
+* *Evening* 18:00 Dinner at [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/)
 
 ## Saturday 18 January
 
@@ -12,13 +12,15 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 * *Lunch* 12:00 - 13:00 Kirkgate Market
 * *Afternoon: Team Crafts* 13:00 - 18:00 Crafts at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/) (a joint event with [Queer Code Yorkshire](https://twitter.com/QueerCodeYorks)).  Kake will provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’ll buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards).  Alice will provide paper/pencils/felt-tips/stickers/scissors/glue/etc.
 * *Afternoon: Team Pub* Hopefully a pub crawl led by [bob walker](https://randomness.org.uk/)
-* *Evening* 18:00 Dinner at [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/)
+* *Evening* Dinner at [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro)
+
 
 ## Sunday 19 January
 
-* *Morning* Brunch at [Meanwood Valley Urban Farm](http://www.mvuf.org.uk/)
+* *Morning* Brunch at [Oriental City](https://www.orientalcityrestaurant.com)
 * *Afternoon* ???
-* *Evening* Dinner at [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro)
+* *Dinner* 19:00 [Bundobust](http://bundobust.com/leeds/)
+
 
 ---
 
