@@ -10,7 +10,7 @@ This page is under development, with Leeds Fun Weekend still very much in the pl
 
 * *Morning* 10:30 [Leeds Owl Trail](http://www.leedsowltrail.com/)
 * *Lunch* 12:00 - 13:00 Kirkgate Market
-* *Afternoon: Team Crafts* 13:00 - 18:00 Crafts at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/) (a joint event with [Queer Code Yorkshire](https://twitter.com/QueerCodeYorks)).  Kake will provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’ll buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards).  Alice will provide paper/pencils/felt-tips/stickers/scissors/glue/etc.
+* *Afternoon: Team Crafts* 13:15 - 17:30 Crafts at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/) (a joint event with [Queer Code Yorkshire](https://twitter.com/QueerCodeYorks)).  Kake will provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’ll buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards).  Alice will provide paper/pencils/felt-tips/stickers/scissors/glue/etc.
 * *Afternoon: Team Pub* Hopefully a pub crawl led by [bob walker](https://randomness.org.uk/)
 * *Evening* 18:00 Dinner at [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro)
 
