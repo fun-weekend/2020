@@ -71,7 +71,6 @@ See also the various [heritage trails and maps](https://www.visitleeds.co.uk/map
 * [Novotel](https://www.accorhotels.com/gb/hotel-3270-novotel-leeds-centre/index.shtml)
 * [Premier Inn](https://www.premierinn.com/gb/en/hotels/england/west-yorkshire/leeds/leeds-city-centre-whitehall-road.html) next to Novotel (recently opened)
 * [The Met](https://www.ihg.com/spnd/hotels/gb/en/leeds/leeks/hoteldetail)
-* [Discovery Inn](https://discovery-inn-leeds.co.uk/) (probably the cheapest central Leeds option, but worth spending the extra on elsewhere if possible)
 
 ## Food:
 
