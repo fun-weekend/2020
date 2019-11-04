@@ -97,17 +97,23 @@ See also the various [heritage trails and maps](https://www.visitleeds.co.uk/map
 * * [TripAdvisor list of Leeds restaurants](https://www.tripadvisor.co.uk/Restaurants-g186411-Leeds_West_Yorkshire_England.html])
 * * [Leeds List on Indian restaurants](https://leeds-list.com/food-and-drink/feast-on-curries-pakoras-and-bhajis-at-the-finest-indian-restaurants-in-leeds/)
 
-## City-centre pubs in the 2019 Good Beer Guide:
+## City-centre pubs in the 2020 Good Beer Guide:
 
+* [Brewery Tap](https://brewerytapleeds.co.uk/), 18–24 New Station Street, LS1 5DL ([WhatPub](https://whatpub.com/pubs/LEE/15/brewery-tap-leeds))
+* [Brunswick](https://www.thebrunswick.co.uk/), 82 North Street, LS2 7PN ([WhatPub](https://whatpub.com/pubs/LEE/607/brunswick-leeds))
 * Duck & Drake, 43 Kirkgate, LS2 7DR
 * Foleys Tap House, 159 The Headrow, LS1 5RG
 * Head of Steam, 13 Mill Hill, LS1 5DQ
 * North Bar, 24 New Briggate, LS1 6NU
 * Reliance, 76–78 North Street, LS2 7PN
 * Scarbrough Hotel, Bishopgate Street, LS1 5DY
+* [Slocken](https://twitter.com/slockenleeds), 10–12 Call Lane, LS1 6DN ([WhatPub](https://whatpub.com/pubs/LEE/590/slocken-leeds))
 * Tapped Leeds, 51 Boar Lane, LS1 5EL
 * Templar, 2 Templar Street, LS2 7NU
 * Town Hall Tavern, 17 Westgate, LS1 2RA
-* Veritas Ale & Wine Bar, 43 Great George Street, LS1 3BB
 * Wapentake, 92 Kirkgate, LS2 7DJ
 * [Whitelock’s Ale House](http://www.whitelocksleeds.com/), Turk’s Head Yard (off Briggate), LS1 6HB
+
+### City-centre pubs that were in the 2019 Good Beer Guide but not in the 2020 one
+
+* [Veritas Ale & Wine Bar](http://www.markettowntaverns.co.uk/pub-and-bar-finder/yorkshire/veritas/), 43 Great George Street, LS1 3BB ([WhatPub](https://whatpub.com/pubs/LEE/131/veritas-ale-wine-bar-leeds))
