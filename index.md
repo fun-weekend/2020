@@ -1,30 +1,10 @@
-This page is under development, with Leeds Fun Weekend still very much in the planning stage.  Pull Requests or Issues with suggestions are very much recommended.  The Fun Weekend will run from Friday 17 January to Sunday 19 January 2020.
+The Leeds Fun Weekend will run from Friday 17 January to Sunday 19 January 2020.  [The basic schedule](http://www.earth.li/~kake/croydon/leeds-fun-weekend-2020.html) has now been released, with a few details still to be filled in.
 
-## Friday 17 January
-
-* *Afternoon* 14:00 - 17:00 Museum crawl - [Henry Moore Institute](https://www.henry-moore.org/visit/henry-moore-institute), [Leeds City Museum](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-City-Museum.aspx), [Leeds Art Gallery](http://www.leeds.gov.uk/museumsandgalleries/Pages/Leeds-Art-Gallery.aspx), [Leeds Central Library Tiled Hall](https://secretlibraryleeds.net/2014/04/11/leeds-central-library-tiled-hall/)
-* *Evening* 17:15 - 18:45 Foleys Tap House
-* *Evening* 19:00 Dinner at [Ibérica](https://www.ibericarestaurants.com/restaurants/iberica-leeds/)
-
-## Saturday 18 January
-
-* *Morning* 10:30 [Leeds Owl Trail](http://www.leedsowltrail.com/)
-* *Lunch* 12:00 - 13:00 Kirkgate Market
-* *Afternoon: Team Crafts* 13:15 - 17:30 Crafts at the [John Lewis Community Hub](https://www.through-the-maze.org.uk/john-lewis-community-room-leeds/) (a joint event with [Queer Code Yorkshire](https://twitter.com/QueerCodeYorks)).  Kake will provide yarn, crochet hooks, knitting needles, and crochet/knitting lessons (I’ll buy the materials after arriving in Leeds and donate any leftovers to a charity shop afterwards).  Alice will provide paper/pencils/felt-tips/stickers/scissors/glue/etc.
-* *Afternoon: Team Pub* Hopefully a pub crawl led by [bob walker](https://randomness.org.uk/)
-* *Evening* 18:00 Dinner at [Fuji Hiro](https://merrioncentre.co.uk/units/fuji-hiro)
-
-
-## Sunday 19 January
-
-* *Morning* Brunch at [Oriental City](https://www.orientalcityrestaurant.com)
-* *Afternoon* ??? (Hopefully some kind of guided walk)
-* *Dinner* 18:00 [Bundobust](http://bundobust.com/leeds/)
-
+This page is for additional suggestions for things to do around and during the weekend.  Pull Requests or Issues with suggestions are very much recommended.
 
 ---
 
-If you have more time in the area, here are some more suggestions.  Please note that (unlike the core Leeds Fun Weekend activities above) some of these might cost money.
+If you have more time in the area, here are some more suggestions.  Please note that (unlike the core Leeds Fun Weekend activities listed on the schedule) some of these might cost money.
 
 ## Travel
 
